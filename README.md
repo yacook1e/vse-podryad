@@ -1,1 +1,1 @@
-[kdsakodsa](/Кудрявцев М. ПМИ22 вариант 7/result.txt)
+[kdsakodsa](/Yamp_lab_1_13/Yamp_lab_1_13.slnt)
